@@ -9,3 +9,6 @@ Update: January 30, 2024
 
 Update: February 12, 2024
 (https://video.bellarmine.edu/media/t/1_k1vww5g5) Link to Kaltura Media for Team Mini Project 2
+
+Update: March 7, 2024
+Uploaded relevant Excel document and link to media presentation (https://video.bellarmine.edu/media/Mini%20Project%203%20Recording%20%7C%20JTR%20%26%20ESS/1_hip3wsqs)
